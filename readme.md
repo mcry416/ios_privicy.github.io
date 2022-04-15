@@ -64,4 +64,5 @@ We are not responsible for the practices employed by websites or services linked
 7. HOW TO CONTACT US
 If you have any questions about this Privacy Policy or the Service, please contact me at mcry416@outlook.com.
 8. CHANGES TO OUR PRIVACY POLICY
-Light Camera may modify or update this Privacy Policy from time to time, so please review it periodically. We may provide you additional forms of notice of modifications or updates as appropriate under the circumstances. Your continued use of Light Camera or the Service after any modification to this Privacy Policy will constitute your acceptance of such modification. In some cases, we may require you to expressly accept new Privacy Policy in order to contin
+Light Camera may modify or update this Privacy Policy from time to time, so please review it periodically. We may provide you additional forms of notice of modifications or updates as appropriate under the circumstances. Your continued use of Light Camera or the Service after any modification to this Privacy Policy will constitute your acceptance of such modification. In some cases, we may require you to expressly accept new Privacy Policy in order to continue using our Service (for example if we expand types of Personal Data collected from you or introduce new purposes of collection and processing).
+This Privacy Policy was last modified on April 15, 2022.
